@@ -7,4 +7,4 @@
 -😎I Study Front end + Back end       
 -🤩I Love GOAL ORIENTED ACADEMY!
 
-![Uploading Screen Shot 2024-07-25 at 4.24.56 PM.png…]()
+![Screen Shot 2024-07-25 at 4 25 28 PM](https://github.com/user-attachments/assets/bbcdecdd-9276-478c-810b-05230db74c22)
